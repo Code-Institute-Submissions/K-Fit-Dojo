@@ -105,6 +105,8 @@ All content it's written by myself about K-Fit Dojo MMA gym.
 ## Media
 
 
-Pictures are taken from the Facebook page of K-Fit Dojo (https://www.facebook.com/pages/category/Martial-Arts-School/K-FIT-Fitness-Dojo-2118288294883801/) with the permission of the owner and head coach. 
+Pictures are taken from the Facebook page of K-Fit Dojo (https://www.facebook.com/pages/category/Martial-Arts-School/K-FIT-Fitness-Dojo-2118288294883801/). 
 
 Video with interviews with coaches and fighters are taken from Youtube of K-fit Dojo (https://www.youtube.com/channel/UCLbXSqImkuPfYEdYyjJwRDw).
+
+All of picters and intervis are taken with permisson owenr adn Head Coch of K-Fit Dojo.
