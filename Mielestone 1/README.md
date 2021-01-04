@@ -1,4 +1,4 @@
-# Milestone-Project
+# K-Fit Dojo MMA Gym
 
 This website it's make as a 1 Milestone project for Code Institute
 
